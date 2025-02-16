@@ -32,4 +32,4 @@ I am goal-oriented with a clear vision: to evolve into a Cloud Architect, shapin
 
 Beyond my professional pursuits, I enjoy traveling and gaming, which fuels my creativity and perspective. I’m excited to connect with professionals, collaborators, and organizations that value innovation and expertise in the cloud domain.
 
-Let’s connect and shape the future of cloud technology together! (Log: Open to collaborations and new opportunities)
+Let’s connect and shape the future of cloud technology together!
